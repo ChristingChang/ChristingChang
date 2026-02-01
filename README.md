@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ChristingChang
-- 🌱 I’m just learning coding
+- 🌱 I love exploring new AI knowledge
 - 📫 How to reach me: cc1799999@gmail.com
 - 😄 Pronouns: live well,love lots, and laugh often.
 - ⚡ Fun fact: I’m currently learning surfing
